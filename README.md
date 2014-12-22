@@ -35,12 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A touchestone for this time present expresly declaring such ruines, enormities, and abuses as troubl
-#####Body#####
-¶ A Compendious fourme of education, to be diligently obserued of all Parentes and Scholemaisters in
-1. To maister Iohn Harlowe his approoued friende.
 
-1. ❧To the Reader.
+1. ❧To his knowne friende mayster Edward Godfrey Merchaunt.
+
+#####Body#####
+
+1. ¶A Touchestone, for this time present.
+¶ A Compendious fourme of education, to be diligently obserued of all Parentes and Scholemaisters in¶ A Compendious fourme of education, to be diligently obserued of all Parentes and Scholemaisters in
+    _ To maister Iohn Harlowe his approoued friende.
+
+    _ ❧To the Reader.
 ❧The Speakers. Philopas. Chrisippus.CHrisippus, in these careles dayeswherin the blinde are boldeTo 
 **Types of content**
 
